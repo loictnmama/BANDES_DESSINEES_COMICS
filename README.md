@@ -2,6 +2,10 @@ Créateur indépendant de bandes dessinées
 
 Janvier 2024-présent
 
+//---------------------------------------------------------//
+CLICK ON CHIKEN_MADNESS_ENT.pdf TO SEE THE FULL PROJECT.
+35 PAGES ABOUT COMIC BOOKS
+//---------------------------------------------------------//
 
 	« CHIKEN MADNESS ENTERTAINMENT »
 	
